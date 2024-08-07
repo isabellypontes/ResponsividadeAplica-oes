@@ -1,1 +1,0 @@
-# ResponsividadeAplica-oes
